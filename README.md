@@ -92,3 +92,19 @@ Bill of Rights - Bill of Rights Institutewww.billofrightsinstitute.org
 [Bill of Rights - Bill of Rights Institutewww.billofrightsinstitute.org](https://www.billofrightsinstitute.org/founding-documents/bill-of-rights/)
 
 # PA Rights
+You probably knew that the United States has a constitution, but did you know that Pennsylvania has one too? In fact, every state has a constitution! Every state has different laws that come from their constitution.  Some laws are shared between the PA and US constitution. 
+## Right to Bear Arms
+
+Did you know that the U.S. and Pennsylvania share the right to bear arms? In the 2nd amendment of the U.S. Constitution, it states, "A well regulated Militia, being necessary to the security of a free State, the right of the people to keep and bear Arms, shall not be infringed." In the Pennsylvania  Constitution Section 21 says, "The right of the citizens to bear arms in defense of themselves and the State shall not be questioned."
+## Freedom of Religious Exercise
+
+The U.S. and PA also share the right of religious exercise. The 1st amendment of the U.S. Constitution it states, "Congress shall make no law respecting an establishment of religion, or prohibiting the free exercise thereof..." The PA Constitution Article 1 Section 4 says, "No person who acknowledges the being of a God and a future state of rewards and punishments shall, on account of his religious sentiments, be disqualified to hold any office or place of trust or profit under this Commonwealth."
+Equal Rights for Men and Women
+
+Did you know that the PA Constitution and the U.S. Constitution do NOT share  the equal rights under the law for men and women. The PA Constitution Article 1 Section 28 states, "Equality of rights under the law shall not be denied or abridged in the Commonwealth of Pennsylvania because of the sex of the individual."
+## Right to Free Elections
+
+In the PA Constitution Article 1 Section 5 it says, " Elections shall be free and equal; and no power, civil or military, shall at any time interfere to prevent the free exercise of the right of suffrage." However, the U.S. Constitution does NOT have this right in the Constitution.
+## Rights to Privacy
+
+In both the U.S. Constitution and the PA Constitution there is NO right to privacy.  It can be inferred though. In the right against unreasonable search and arrest protects your privacy. 
