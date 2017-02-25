@@ -111,7 +111,7 @@ In both the U.S. Constitution and the PA Constitution there is NO right to priva
 
 # Important Rights
 There are many important rights. Here are some of the most important rights you possess.
-=====
+
 
 As citizens of the United States we are entitled to protect our rights. We have the responsibility to keep popular sovereignty around. Popular sovereignty is about the people. Without the people you have no popular sovereignty. We need to protect our rights and the people in our nation from an unfair government. Without us, there is no government. 
 ## Freedom of the Press
@@ -126,3 +126,13 @@ The right to have frees speech is very important. Free speech is speaking your o
 ## Right to Bear Arms
 
 The right to bear arms is a controversial right. Some people are for it and some are against it. I am for it though. The right to bear arms ,2nd Amendment, says that we are to have weapons. Do not worry though, we will always have this right. The government cannot repeal this amendment. They can make it harder to get weapons, specifically guns. Some people think that the Founding Fathers gave us weapons to keep the government in check. Some think that the Founding Fathers gave the soldiers the weapons to protect the country. No matter what you believe, you will always have the right to own a weapon. 
+
+# Origin of your Rights
+     
+     Where do your rights come from? Your rights come from the Constitution or more specifically, the Bill of Rights. The Bill of Rights was added to the Constitution because the Anti-Federalists feared that our government would overpower the people and succumb to tyranny. The Bill of Rights is composed of the first ten amendments. 
+
+     The states have their own constitutions though. The Pennsylvania Constitution is similar to the United States Constitution.  They both have similar rights in them. The Pennsylvania Constitution's third amendment and the U.S. Constitution's first amendment both state that men are entitled to worship whoever and whatever they want. They cannot be forced to attend any religious ceremonies and the government cannot interfere with or prefer any religion. 
+
+     Though these two are similar, they are both different documents. If you would like to know all of them, please go to the website down below.  One difference is with the Second Amendment. In the Pennsylvania Constitution, it states, "The right of the citizens to bear arms in defense of themselves and the State shall not be questioned." This is for protecting yourself and your family. Do you see the word questioned? Well, that word means that the state government cannot even question it. There are some rights that are in the Pennsylvania Constitution that are not in the U.S. Constitution. The Pennsylvania Constitution has the right to clean air and water where the U.S. Constitution does not. The Pennsylvania Constitution also has equal rights under the law for men and women, the right to alter, reform, or abolish government, the right to free elections, and the protection against a standing army. They are both very similar though. The U.S. Constitution influenced the Pennsylvania Constitution greatly. 
+
+
