@@ -108,3 +108,21 @@ In the PA Constitution Article 1 Section 5 it says, " Elections shall be free an
 ## Rights to Privacy
 
 In both the U.S. Constitution and the PA Constitution there is NO right to privacy.  It can be inferred though. In the right against unreasonable search and arrest protects your privacy. 
+
+# Important Rights
+There are many important rights. Here are some of the most important rights you possess.
+=====
+
+As citizens of the United States we are entitled to protect our rights. We have the responsibility to keep popular sovereignty around. Popular sovereignty is about the people. Without the people you have no popular sovereignty. We need to protect our rights and the people in our nation from an unfair government. Without us, there is no government. 
+## Freedom of the Press
+
+Freedom of the press is very important. Without the freedom of the press we would not be able to communicate across the country freely. Without freedom of the press we wouldn't know what is actually going on.  Freedom of the press is a privilege. In many other countries the government runs the press so everything you see if pro- government. Freedom of the press is actually what allows us to make websites like this. If we did not have this right, all websites would be pro-government. You would not be able to announce your opinion to America about what you think of President Trump or any other government situations. Channels like FOX and CNN are not the only examples of freedom of the press. Blogs, websites, and newspapers are also freedom of the press. 
+## Right to Vote
+
+The right to vote is often under appreciated. Many Americans will not vote and they do not realize what a privilege it really is. In other countries, the voting process is closed to a few and often rigged. We need to encourage others to vote, even if you don't like the candidates. Voting gives power to the people. Without us Americans voting, popular sovereignty would take a backseat. America is a republic. Republic comes from the Latin term res publica, which means a public thing. Realize that voting is one of the most important things that keep our government in check. Many people complain of an over powering government and that there is nothing we can do to stop it. They are wrong though, voting is a public thing that helps decide the fate of many elections. When voting in the electoral college, the result of the popular vote will influence the electors vote. 
+## Right to Free Speech
+
+The right to have frees speech is very important. Free speech is speaking your opinion. In many other countries, people are silenced for speaking out against the government. We are very lucky to have this right. This right will keep every one up to date on everyone's opinions. Some opinions are right though. If the American colonists did not spread their thoughts on how the British government were treating them, we might be saying, "God save the queen." 
+## Right to Bear Arms
+
+The right to bear arms is a controversial right. Some people are for it and some are against it. I am for it though. The right to bear arms ,2nd Amendment, says that we are to have weapons. Do not worry though, we will always have this right. The government cannot repeal this amendment. They can make it harder to get weapons, specifically guns. Some people think that the Founding Fathers gave us weapons to keep the government in check. Some think that the Founding Fathers gave the soldiers the weapons to protect the country. No matter what you believe, you will always have the right to own a weapon. 
