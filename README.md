@@ -90,3 +90,5 @@ This means that any power not given to the Federal government is given to the Am
 Bill of Rights - Bill of Rights Institutewww.billofrightsinstitute.org
 [Amendments 11 - 27 - National Center for Constitutional](https://nccs.net/online-resources/us-constitution/amendments-to-the-us-constitution/amendments-11-27)
 [Bill of Rights - Bill of Rights Institutewww.billofrightsinstitute.org](https://www.billofrightsinstitute.org/founding-documents/bill-of-rights/)
+
+# PA Rights
